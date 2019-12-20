@@ -1,2 +1,2 @@
 # til
-Finally I create this repo for archiving,,, (actually I didn't want to do it because I thought it is quite like old-fashioned trend,,,)
+님들이 다 아는 그거 
